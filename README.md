@@ -1,0 +1,1 @@
+# RESOLVER coaching institute — independent concept preview`n`nThis is an unsolicited design concept, not the institute official website. No affiliation is claimed. Course/contact information is placeholder and requires approval.
